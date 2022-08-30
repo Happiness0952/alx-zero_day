@@ -1,1 +1,1 @@
-I am making progress.
+I am glad I'm making progress.
